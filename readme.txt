@@ -1,0 +1,2 @@
+Nagy                            Ondavai
+Krisztián                       Dániel    
